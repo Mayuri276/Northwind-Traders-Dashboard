@@ -106,3 +106,17 @@ B.Tech in Artificial Intelligence & Data Science
 CSMSS Chhatrapati Shahu College of Engineering, Chhatrapati Sambhaji Nagar
 
 📧 Email: [jamdarmayuri2@gmail.com](mailto:jamdarmayuri2@gmail.com)
+
+<img width="1344" height="756" alt="Screenshot 2026-05-11 190741" src="https://github.com/user-attachments/assets/72c1573c-711b-414e-b00e-ac93b8ff7dcb" />
+<img width="1349" height="737" alt="Screenshot 2026-05-11 190729" src="https://github.com/user-attachments/assets/5914ad68-e104-447f-bac1-4513d7560cb3" />
+<img width="1403" height="763" alt="Screenshot 2026-05-11 190816" src="https://github.com/user-attachments/assets/c272b0fa-7578-49c3-8c88-96fc73da0a16" />
+<img width="1598" height="763" alt="Screenshot 2026-05-10 021341" src="https://github.com/user-attachments/assets/e746ab91-68b7-499c-a8bd-6d53bf3bc691" />
+<img width="1919" height="1039" alt="Screenshot 2026-05-10 010648" src="https://github.com/user-attachments/assets/81b4d00e-c69d-41cd-9c96-3b29e243c715" />
+<img width="1918" height="1032" alt="Screenshot 2026-05-09 173500" src="https://github.com/user-attachments/assets/7b288fd5-6e58-4e3d-8b78-0f9fdb606c0e" />
+
+
+
+
+
+
+
