@@ -134,6 +134,8 @@ CSMSS Chhatrapati Shahu College of Engineering, Chhatrapati Sambhaji Nagar
 <img width="1403" height="763" alt="Screenshot 2026-05-11 190816" src="https://github.com/user-attachments/assets/831a584e-927d-4ae0-8238-d0b5abd7248b" />
 <img width="1344" height="756" alt="Screenshot 2026-05-11 190741" src="https://github.com/user-attachments/assets/9b467178-91f7-408f-b79a-9f42384887d8" />  <img width="1598" height="763" alt="Screenshot 2026-05-10 021341" src="https://github.com/user-attachments/assets/5d7fb8bb-0fc9-461e-87c4-4a3cf486bc63" />
 
+"C:\Users\Mayuri Jamdar\Downloads\Northwind Traders Dashboard\Recording 2026-05-15 183913.mp4"
+
 
 
 
